@@ -6,7 +6,6 @@ I'm an experienced crypto trader (DEX & CEX), but not a dev yet. I'm a blockchai
 - 🛡️ Managing social media accounts and Telegram moderation
 - 💬 Ask me about crypto trading, blockchain, or community management
 - 📫 Email: auwalushuaibu0@gmail.com | X: @bullisheye
-<!---
-AuwalDambatta/AuwalDambatta is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+*"The future belongs to those who believe in the beauty of their dreams."*
+Thanks for checking out my profile!
+
